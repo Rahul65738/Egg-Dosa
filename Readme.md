@@ -1,1 +1,1 @@
-This is a Recipe for making Egg-Dosa
+Egg dosa recipe also known as mutta dosa is a popular street food from South India. One gets to see a variety of egg dosa especially on the streets of Tamil Nadu. Some are smeared with curry and some with spice powders or with veggies. I am sharing a simple home style recipe. It can be enjoyed as breakfast or evening snack and needs no accompaniment.
